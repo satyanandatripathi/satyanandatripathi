@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @satyanandatripathi
 - 👀 I’m interested in DJing
-- 🌱 I’m currently learning IT STUDENT AND DJ
+- 🌱 I’m currently doing IT Enginnering from GTU 
 - 💞️ I’m looking to collaborate on Tomorrowland
 - 📫 How to reach me ... Telegram I'd @DJ_DOMIN8or
 
