@@ -1,5 +1,6 @@
-# $su - root 
-[![Telegram](https://telegra.ph/file/c04f1241bac924ae2a497.jpg)](http://t.me/mrstrange_genuine)
+# Prabodh Nandini Projects 
+
+[>>>>>>>>](https://github.com/pn-projects)
 
 
 [![Profile views](https://komarev.com/ghpvc/?username=satyanandatripathi&label=Profile%20views)](https://github.com/satyanandatripathi)
